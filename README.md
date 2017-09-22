@@ -5,3 +5,10 @@
 [学习过程](http://mlb.farbox.com/post/django-xadmin)
 
 
+![](http://opmi2ydgh.bkt.clouddn.com//17-9-22/24779023.jpg)
+
+![](http://opmi2ydgh.bkt.clouddn.com//17-9-22/36750575.jpg)
+
+![](http://opmi2ydgh.bkt.clouddn.com//17-9-22/79987118.jpg)
+
+
